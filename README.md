@@ -1,2 +1,2 @@
-# MP17
-Student Mess
+# MayuriGermany
+Website for Instagram Influencer
